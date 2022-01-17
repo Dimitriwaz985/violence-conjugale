@@ -1,4 +1,4 @@
 # violence-conjugale
-Bonjour.
-
-Je me nomme Dimitri, j'ai 38 ans et je suis avocat de métier. Je possède également un cabinet basé à Paris. J'interviens notamment sur les cas de violence conjugale et d'agressions sexuelles. L'État français a actuellement facilité les déclarations de plainte en incluant le dispositif de dépôt de plainte dans les hôpitaux, ce qui est une bonne chose. J'ai donc rejoint cette communauté pour sponsoriser tout projet allant dans le sens de la protection et émancipation de la femme. 
+Bonjour à tous
+Je me nomme Dimitri, j'ai 38 ans et je suis avocat de métier. Je possède également un cabinet basé à Paris. J'interviens notamment sur les questions de violence conjugale et d'agressions sexuelles. 
+L'État français a actuellement facilité le dispositif pour les déclarations de plainte pour les victimes de violences conjugales. Cette initiative, qui a été récompensée par le Conseil de l'Europe, est rendue possible en incluant le dispositif de dépôt de plainte directement dans les hôpitaux, ce qui est une bonne chose. J'ai donc rejoint cette communauté pour promouvoir notre plateforme d'information qui d'aide à avoir les détails concernant la protection et l'émancipation de la femme ainsi que les procédures juridiques de déclaration de plainte en cas de violence conjugale.
